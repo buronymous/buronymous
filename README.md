@@ -1,8 +1,5 @@
-HELLO
+i am literally just kalypso.
+@kalypsoade on all platforms
+gre / eng
 
-I AM BURONYMOUS
-ALSO KNOWN AS KALYPSO
-
-...
-
-WHALEJOEY!
+listen to aristotles denial
